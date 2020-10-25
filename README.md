@@ -1,4 +1,4 @@
 ecs300
 ======
 
-The openschool community of Global Frontiers Institute
+Activate ECS300 ONLINE Educational Consultancy Services
